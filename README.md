@@ -1,10 +1,9 @@
 ### Hema here 😊
 
-🎯 **Currently Learning**: Springboot APIs, Python projects, and some DSA  
+
 🖋 **Love writing about**: Tech, history, general topics, and marketing  
 🌱 **Interests**: Tech, lifestyle, and exploring new books
 
-📫 **Drop me a line**: [annaluruhema23@gmail.com](mailto:annaluruhema23@gmail.com)
 
 ---
 ### Connect with me:
